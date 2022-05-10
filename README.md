@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ArgentumLynx
 - 👀 I’m interested in absolutely everything
 - 🌱 I’m currently learning M365 and Computer Engineering (C is hard)
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m actually not looking to collaborate :,)
 - 📫 How to reach me ~ Please ✨don't✨
 
 <!---
